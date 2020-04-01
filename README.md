@@ -1,0 +1,2 @@
+# wadahku
+hanya belajar
